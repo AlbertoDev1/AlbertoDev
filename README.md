@@ -7,3 +7,4 @@
 -👀 Tenho interesse em trabalhos remotos para o desenvolvimento de sites e aplicativos desktops.
 -📫 Como me encontrar: josealbertoj584@gmail.com
 
+j
